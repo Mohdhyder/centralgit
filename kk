@@ -1,4 +1,0 @@
-hdyer
-mohd
-abdul
-sattar
